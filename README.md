@@ -5,9 +5,9 @@
 * [5. Feb 2026 @ONO2 with James](#5-feb-2026-ono2)
 * [8. Jan 2026 @ONO2 with Martelle](#8-jan-2026-ono2)
 
-
 ## 20. May 2026 @Friedrichsdorf
 TBD 
+
 [Jump back to Gigs](#gigs)
 
 ## 5. Feb 2026 @ONO2
@@ -32,6 +32,7 @@ TBD
 * Don’t Cry No More [C]
 * The Ghetto [Am]
 * Papa Was A Rolling Stone [Am]
+ 
 [Jump back to Gigs](#gigs)
 
 ## 8. Jan 2026 @ONO2
@@ -61,4 +62,5 @@ TBD
 ### Additions (if necessary)
 * Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
 * Killing Floor [G] [link](https://www.youtube.com/watch?v=EGIE28q3fEA)
+
 [Jump back to Gigs](#gigs)
