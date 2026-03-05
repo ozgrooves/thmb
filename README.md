@@ -2,12 +2,38 @@
 
 # Gigs 
 * [20. May 2026 @Friedrichsdorf](#20-mai-2026-friedrichsdorf)
+* [5. Mar 2026 @ONO2 with Mojo](#5-mar-2026-ono2)
 * [5. Feb 2026 @ONO2 with James](#5-feb-2026-ono2)
 * [8. Jan 2026 @ONO2 with Martelle](#8-jan-2026-ono2)
 
 ## 20. May 2026 @Friedrichsdorf
 
 TBD 
+
+[Jump back to Gigs](#gigs)
+
+## 5. Mar 2026 @ONO2
+
+### Set 1
+
+* Work Song [Dm]
+* If You Love Me Like You Say [G]
+* Sugar Coated Love
+
+### Set 2
+
+* Back At The Chicken Shack
+* Route 66 [G]
+* You Dont Know What Love Is [Em]
+
+### Mojo
+
+* Buddy Buddy Friends [X] [link](https://www.youtube.com/watch?v=5aQfvxfDvKE)
+* She Walks Right In [G] [link](https://www.youtube.com/watch?v=AfayHTIt3T4)
+* Let The Good Times Roll [G] [link](https://www.youtube.com/watch?v=66GJkwobMuU)
+* Kidney Stew [Bb] [link](https://www.youtube.com/watch?v=f1gKMs7Ttn0)
+* Champagne & Reefer [E] [link](https://www.youtube.com/watch?v=rea4Stp0SeE)
+* Strange Things Happening [F] [link](https://www.youtube.com/watch?v=PVm1Zv2NPLA)
 
 [Jump back to Gigs](#gigs)
 
