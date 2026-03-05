@@ -18,11 +18,11 @@ TBD
 
 * Work Song [Dm]
 * If You Love Me Like You Say [G]
-* Sugar Coated Love
+* Sugar Coated Love [E]
 
 ### Set 2
 
-* Back At The Chicken Shack
+* Back At The Chicken Shack [G]
 * Route 66 [G]
 * You Dont Know What Love Is [Em]
 
@@ -35,7 +35,7 @@ TBD
 * Champagne & Reefer [E] [link](https://www.youtube.com/watch?v=rea4Stp0SeE)
 * Strange Things Happening [F] [link](https://www.youtube.com/watch?v=PVm1Zv2NPLA)
 
-[Jump back to Gigs](#gigs)
+[Jump Back](#gigs)
 
 ## 5. Feb 2026 @ONO2
 
@@ -66,7 +66,7 @@ TBD
 * The Ghetto [Am]
 * Papa Was A Rolling Stone [Am]
  
-[Jump back to Gigs](#gigs)
+[Jump Back](#gigs)
 
 ## 8. Jan 2026 @ONO2
 
@@ -106,4 +106,4 @@ TBD
 * Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
 * Killing Floor [G] [link](https://www.youtube.com/watch?v=EGIE28q3fEA)
 
-[Jump back to Gigs](#gigs)
+[Jump Back](#gigs)
