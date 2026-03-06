@@ -1,30 +1,38 @@
 # Tommie Harris Memorial Band
 
-# Gigs 
+# Gigs
+
 * [20. May 2026 @Friedrichsdorf](#20-mai-2026-friedrichsdorf)
+* [2. Apr 2026 @ONO2 with Marcel](#2-apr-2026-ono2)
 * [5. Mar 2026 @ONO2 with Mojo](#5-mar-2026-ono2)
 * [5. Feb 2026 @ONO2 with James](#5-feb-2026-ono2)
 * [8. Jan 2026 @ONO2 with Martelle](#8-jan-2026-ono2)
 
 ## 20. May 2026 @Friedrichsdorf
 
-TBD 
+TBD
 
-[Jump back to Gigs](#gigs)
+[Back to top](#gigs)
+
+## 2. Apr 2026 @ONO2
+
+TBD
+
+[Back to top](#gigs)
 
 ## 5. Mar 2026 @ONO2
 
 ### Set 1
 
-* Work Song [Dm]
-* If You Love Me Like You Say [G]
-* Sugar Coated Love [E]
+* Work Song [Dm] [link](https://www.youtube.com/watch?v=IxrYIbxOmlE)
+* If You Love Me Like You Say [G] [link](https://www.youtube.com/watch?v=0tOjDZuzs0M)
+* Sugar Coated Love [E] [link](https://www.youtube.com/watch?v=DaP16nIN_8c)
 
 ### Set 2
 
-* Back At The Chicken Shack [G]
-* Route 66 [G]
-* You Dont Know What Love Is [Em]
+* Back At The Chicken Shack [G] [link](https://www.youtube.com/watch?v=3Q1GFRbeMMk)
+* Route 66 [G] [link](https://www.youtube.com/watch?v=uRX_NZ7kTt0)
+* You Dont Know What Love Is [Em] [link](https://www.youtube.com/watch?v=HxB3BnesOYw)
 
 ### Mojo
 
@@ -35,38 +43,38 @@ TBD
 * Champagne & Reefer [E] [link](https://www.youtube.com/watch?v=rea4Stp0SeE)
 * Strange Things Happening [F] [link](https://www.youtube.com/watch?v=PVm1Zv2NPLA)
 
-[Jump Back](#gigs)
+[Back to top](#gigs)
 
 ## 5. Feb 2026 @ONO2
 
 ### Set 1
 
-* Turtle Walk [Cm]
+* Turtle Walk [Cm] [link](https://www.youtube.com/watch?v=nVpIoYuI2Yw)
 * Fine Brown Frame [A] [link](https://www.youtube.com/watch?v=o2bIRABI9mE)
-* Ti Ni Nee Ni Nu [Gm]
-* Rock Me Baby [G]
-* Inner City Blues [Em]
-* Your Love Is Lifting Me Higher [B]
+* Ti Ni Nee Ni Nu [Gm] [link](https://www.youtube.com/watch?v=nVpIoYuI2Yw)
+* Rock Me Baby [G] [link](https://www.youtube.com/watch?v=nVpIoYuI2Yw)
+* Inner City Blues [Em] [link](https://www.youtube.com/watch?v=nVpIoYuI2Yw)
+* Your Love Is Lifting Me Higher [B] [link](https://www.youtube.com/watch?v=Gn6SNbTD0_Q)
 
 ### Set 2
 
-* Song For My Father [Fm]
-* If You Love Me Like You Say [G]
+* Song For My Father [Fm] [link](https://www.youtube.com/watch?v=mKf1x3CALAE)
+* If You Love Me Like You Say [G] [link](https://www.youtube.com/watch?v=0tOjDZuzs0M)
 * My Babe [E] [link1](https://www.youtube.com/watch?v=62qJBG0Vj44) [link2](https://www.youtube.com/watch?v=aZawFpkUROE)
-* Last Two Dollars [Em] or [Am]
-* Just The Two Of Us [Em]
-* Cold Shot [A]
+* Last Two Dollars [Em] or [Am] [link](https://www.youtube.com/watch?v=dm1opP8x3Qo)
+* Just The Two Of Us [Em] [link](https://www.youtube.com/watch?v=6IO74QV6wHY)
+* Cold Shot [A] [link](https://www.youtube.com/watch?v=fAPo0EMfdLw)
 
 ### Set 3
 
-* Way Back Home [D]
+* Way Back Home [D] [link](https://www.youtube.com/watch?v=9G-OgwGetoU)
 * You’re Humbugging Me [E] [link1](https://www.youtube.com/watch?v=HjMrAe3Tmjs) [link2](https://www.youtube.com/watch?v=0wB_5jafZX8)
-* Yellow Moon [Cm]
-* Don’t Cry No More [C]
-* The Ghetto [Am]
-* Papa Was A Rolling Stone [Am]
+* Yellow Moon [Cm] [link](https://www.youtube.com/watch?v=L1Y6W1FaSVQ)
+* Don’t Cry No More [C] [link](https://www.youtube.com/watch?v=hFSZyJ55h_I)
+* The Ghetto [Am] [link](https://www.youtube.com/watch?v=OqZ2JBVXgpA)
+* Papa Was A Rolling Stone [Am] [link](https://www.youtube.com/watch?v=pJV2pWFyfn4)
  
-[Jump Back](#gigs)
+[Back to top](#gigs)
 
 ## 8. Jan 2026 @ONO2
 
@@ -106,4 +114,4 @@ TBD
 * Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
 * Killing Floor [G] [link](https://www.youtube.com/watch?v=EGIE28q3fEA)
 
-[Jump Back](#gigs)
+[Back to top](#gigs)
