@@ -2,7 +2,7 @@
 
 # Gigs
 
-* [20. May 2026 @Friedrichsdorf](#20-mai-2026-friedrichsdorf)
+* [20. May 2026 @Friedrichsdorf](#20-may-2026-friedrichsdorf)
 * [2. Apr 2026 @ONO2 with Marcel](#2-apr-2026-ono2)
 * [5. Mar 2026 @ONO2 with Mojo](#5-mar-2026-ono2)
 * [5. Feb 2026 @ONO2 with James](#5-feb-2026-ono2)
