@@ -36,7 +36,7 @@ TBD
 
 ### Mojo
 
-* Buddy Buddy Friends [X] [link](https://www.youtube.com/watch?v=5aQfvxfDvKE)
+* Buddy Buddy Friends [G] [link](https://www.youtube.com/watch?v=5aQfvxfDvKE)
 * She Walks Right In [G] [link](https://www.youtube.com/watch?v=AfayHTIt3T4)
 * Let The Good Times Roll [G] [link](https://www.youtube.com/watch?v=66GJkwobMuU)
 * Kidney Stew [Bb] [link](https://www.youtube.com/watch?v=f1gKMs7Ttn0)
