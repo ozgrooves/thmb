@@ -1,26 +1,26 @@
-# Tommie Harris Memorial Band
+# Tommie Harris Memorial Band 2026
 
 # Gigs
 
-* [20. May 2026 @Friedrichsdorf](#20-may-2026-friedrichsdorf)
-* [2. Apr 2026 @ONO2 with Marcel](#2-apr-2026-ono2)
-* [5. Mar 2026 @ONO2 with Mojo](#5-mar-2026-ono2)
-* [5. Feb 2026 @ONO2 with James](#5-feb-2026-ono2)
-* [8. Jan 2026 @ONO2 with Martelle](#8-jan-2026-ono2)
+* [20. May @Friedrichsdorf](#20-may-friedrichsdorf)
+* [2. Apr @ONO2 with Marcel](#2-apr-ono2)
+* [5. Mar @ONO2 with Mojo](#5-mar-ono2)
+* [5. Feb @ONO2 with James](#5-feb-ono2)
+* [8. Jan @ONO2 with Martelle](#8-jan-ono2)
 
-## 20. May 2026 @Friedrichsdorf
-
-TBD
-
-[Back to top](#gigs)
-
-## 2. Apr 2026 @ONO2
+## 20. May @Friedrichsdorf
 
 TBD
 
 [Back to top](#gigs)
 
-## 5. Mar 2026 @ONO2
+## 2. Apr @ONO2
+
+TBD
+
+[Back to top](#gigs)
+
+## 5. Mar @ONO2
 
 ### Set 1
 
@@ -45,7 +45,7 @@ TBD
 
 [Back to top](#gigs)
 
-## 5. Feb 2026 @ONO2
+## 5. Feb @ONO2
 
 ### Set 1
 
@@ -76,7 +76,7 @@ TBD
  
 [Back to top](#gigs)
 
-## 8. Jan 2026 @ONO2
+## 8. Jan @ONO2
 
 ### Set 1
 
