@@ -16,7 +16,30 @@ TBD
 
 ## 2. Apr @ONO2
 
-TBD
+### Set 1
+
+* Mo Better Blues [G] [link](https://www.youtube.com/watch?v=xAdZk30NiQw)
+* Kiddio [A] [link](https://www.youtube.com/watch?v=-HyetYwVtHs)
+* Groovin [G] [link](https://www.youtube.com/watch?v=YtaNmNQGf50)
+* I Hear You Knocking [] [link](https://www.youtube.com/watch?v=wLYEJko1ypM)
+* Aint Too Proud To Beg [C] [link](https://www.youtube.com/watch?v=_ObVQPBD0Uw)
+* A Nickel And A Nail [Am] [link] (https://www.youtube.com/watch?v=RrekN1k3L5A)
+* Hold on im comming [E] [link](https://www.youtube.com/watch?v=6JElrEbAcwY)
+* Aint no love in the heart of the city [Am] [link](https://www.youtube.com/watch?v=38OOUDTsqM0)
+* I Wouldn’t Treat A Dog [G#] [link](https://www.youtube.com/watch?v=Bj14CTt563w)
+
+### Set 2
+
+* Mercy Mercy Mercy [Bb] [link](https://www.youtube.com/watch?v=y7FFLYXEOqA)
+* Phone booth [Em] [link](https://www.youtube.com/watch?v=Ydlyc4PHxko)
+* Baby What You Want Me To Do [E] [link](https://www.youtube.com/watch?v=tb3PtE-GAJ4)
+<!-- * Touble No More [E] [link](https://www.youtube.com/watch?v=EyVoVKNlFSc) -->
+* Kiss [A] [link](https://www.youtube.com/watch?v=H9tEvfIsDyo)
+* Got To Get You Off My Mind [A] [link](https://www.youtube.com/watch?v=EnVwgMKLXKw)
+* Bring It On Home [C] [link](https://www.youtube.com/watch?v=g3ncYwtsQWY)
+* Can I Change My Mind [B] [link](https://www.youtube.com/watch?v=KBEaDbMNiLE)
+* Nothing Can Change This Love [A] [link](https://www.youtube.com/watch?v=4JHPTHLWubk)
+* Green Grass [C] [link](https://www.youtube.com/watch?v=tf07oTXc1hE)
 
 [Back to top](#gigs)
 
