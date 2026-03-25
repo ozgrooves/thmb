@@ -24,9 +24,9 @@ TBD
 * I Hear You Knocking [E] [link](https://www.youtube.com/watch?v=O_jFfTNVOwg)
 * Aint Too Proud To Beg [C] [link](https://www.youtube.com/watch?v=_ObVQPBD0Uw)
 * A Nickel And A Nail [Am] [link](https://www.youtube.com/watch?v=RrekN1k3L5A)
-* Hold on im comming [E] [link](https://www.youtube.com/watch?v=6JElrEbAcwY)
-* Aint no love in the heart of the city [Am] [link](https://www.youtube.com/watch?v=38OOUDTsqM0)
-* I Wouldn’t Treat A Dog [G#] [link](https://www.youtube.com/watch?v=Bj14CTt563w)
+* Hold On Im Comming [E] [link](https://www.youtube.com/watch?v=6JElrEbAcwY)
+* Aint No Love In The Heart of The City [Am] [link](https://www.youtube.com/watch?v=38OOUDTsqM0)
+* I Wouldnt Treat A Dog [G#] [link](https://www.youtube.com/watch?v=Bj14CTt563w)
 
 ### Set 2
 
