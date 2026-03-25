@@ -19,11 +19,11 @@ TBD
 ### Set 1
 
 * Mo Better Blues [G] [link](https://www.youtube.com/watch?v=xAdZk30NiQw)
-* Kiddio [A] [link](https://www.youtube.com/watch?v=-HyetYwVtHs)
+* Kiddio [B] [link](https://www.youtube.com/watch?v=-HyetYwVtHs)
 * Groovin [G] [link](https://www.youtube.com/watch?v=YtaNmNQGf50)
-* I Hear You Knocking [] [link](https://www.youtube.com/watch?v=wLYEJko1ypM)
+* I Hear You Knocking [E] [link](https://www.youtube.com/watch?v=O_jFfTNVOwg)
 * Aint Too Proud To Beg [C] [link](https://www.youtube.com/watch?v=_ObVQPBD0Uw)
-* A Nickel And A Nail [Am] [link] (https://www.youtube.com/watch?v=RrekN1k3L5A)
+* A Nickel And A Nail [Am] [link](https://www.youtube.com/watch?v=RrekN1k3L5A)
 * Hold on im comming [E] [link](https://www.youtube.com/watch?v=6JElrEbAcwY)
 * Aint no love in the heart of the city [Am] [link](https://www.youtube.com/watch?v=38OOUDTsqM0)
 * I Wouldn’t Treat A Dog [G#] [link](https://www.youtube.com/watch?v=Bj14CTt563w)
