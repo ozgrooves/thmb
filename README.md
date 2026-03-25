@@ -31,7 +31,7 @@ TBD
 ### Set 2
 
 * Mercy Mercy Mercy [Bb] [link](https://www.youtube.com/watch?v=y7FFLYXEOqA)
-* Phone booth [Em] [link](https://www.youtube.com/watch?v=Ydlyc4PHxko)
+* Phone Booth [Em] [link](https://www.youtube.com/watch?v=Ydlyc4PHxko)
 * Baby What You Want Me To Do [E] [link](https://www.youtube.com/watch?v=tb3PtE-GAJ4)
 <!-- * Touble No More [E] [link](https://www.youtube.com/watch?v=EyVoVKNlFSc) -->
 * Kiss [A] [link](https://www.youtube.com/watch?v=H9tEvfIsDyo)
