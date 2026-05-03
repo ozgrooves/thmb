@@ -27,7 +27,7 @@ TBD
 ### Set 2
 
 * Cisst Strut [C] [link](https://www.youtube.com/watch?v=MXI5Nuz6OHg)
-* Kiddio [B] [link](https://www.youtube.com/watch?v=yxAb3HuY7qo)
+* Kiddio [B] [link](https://www.youtube.com/watch?v=-HyetYwVtHs)
 * A Real Mother For Ya [F] [link](https://www.youtube.com/watch?v=9wT1s96JIb0)
 * Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
 
