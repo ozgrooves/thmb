@@ -17,7 +17,40 @@ TBD
 
 ## 7. May @ONO2
 
-TBD
+### Set 1
+
+* Cantaloupe Woman [D] [link](https://www.youtube.com/watch?v=GygQ2OC_GvI)
+* Black Magic Woman [Em] [link](https://www.youtube.com/watch?v=9wT1s96JIb0)
+* Mercury Blues [D] [link](https://www.youtube.com/watch?v=QsTfCITzISM)
+* I’ll Play The Blues For You [G] [link](https://www.youtube.com/watch?v=6SP5JHLqXM8)
+
+### Set 2
+
+* Cisst Strut [C] [link](https://www.youtube.com/watch?v=MXI5Nuz6OHg)
+* Kiddio [B] [link](https://www.youtube.com/watch?v=yxAb3HuY7qo)
+* A Real Mother For Ya [F] [link]https://www.youtube.com/watch?v=9wT1s96JIb0
+* Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
+
+### Martelle
+
+* Help The Poor [Dm] [link](https://www.youtube.com/watch?v=bvUcWbiSnrk)
+* Something You Got [A] [link](https://www.youtube.com/watch?v=tjuDzk1EK1U)
+* Messing With The Kid [C] [link](https://www.youtube.com/watch?v=dzdYFX1hF20)
+* Steady Rolling Man [A] [link](https://www.youtube.com/watch?v=KevML9tk_t4)
+* Done Changed My Way Of Living [E] [link](https://www.youtube.com/watch?v=nKvRi-xbZYg)
+* Don’t Get Around Much Anymore [C] [link](https://www.youtube.com/watch?v=WSGgj088Skc)
+* Jambalaya [Db] [link](https://www.youtube.com/watch?v=NzjywHFaTOM)
+* Got Love If You Want It [G] [link](https://www.youtube.com/watch?v=NEVLKhQHEVU)
+* Willie And Hand Jive [A] [link](https://www.youtube.com/watch?v=OYkgKNfszAY)
+* One Way Out [A] [link](https://www.youtube.com/watch?v=zMsF1sUISWw)
+
+
+### Extras 
+
+* Killing Floor [G] [link](https://www.youtube.com/watch?v=EGIE28q3fEA)
+* Big Legged Woman [A] [link](https://www.youtube.com/watch?v=RoUk7u40eSg)
+* My Babe [F] [link](https://www.youtube.com/watch?v=duRp_avXtMM)
+* Right On [D] [link](https://www.youtube.com/watch?v=kUVNIJl6h38)
 
 [Back to top](#gigs)
 
