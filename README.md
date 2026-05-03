@@ -3,7 +3,7 @@
 # Gigs
 
 * [20. May @Friedrichsdorf](#20-may-friedrichsdorf)
-* [7. May @ONO2 with Martelle](#2-may-ono2)
+* [7. May @ONO2 with Martelle](#7-may-ono2)
 * [2. Apr @ONO2 with Marcel](#2-apr-ono2)
 * [5. Mar @ONO2 with Mojo](#5-mar-ono2)
 * [5. Feb @ONO2 with James](#5-feb-ono2)
@@ -28,7 +28,7 @@ TBD
 
 * Cisst Strut [C] [link](https://www.youtube.com/watch?v=MXI5Nuz6OHg)
 * Kiddio [B] [link](https://www.youtube.com/watch?v=yxAb3HuY7qo)
-* A Real Mother For Ya [F] [link]https://www.youtube.com/watch?v=9wT1s96JIb0
+* A Real Mother For Ya [F] [link]https://www.youtube.com/watch?v=9wT1s96JIb0)
 * Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
 
 ### Martelle
