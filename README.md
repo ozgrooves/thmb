@@ -48,8 +48,8 @@ TBD
 ### Extras 
 
 * Killing Floor [G] [link](https://www.youtube.com/watch?v=EGIE28q3fEA)
-* Big Legged Woman [A] [link](https://www.youtube.com/watch?v=RoUk7u40eSg)
-* My Babe [F] [link](httpsv(https://www.youtube.com/watch?v=aZawFpkUROE)
+* Big Legged Woman [A] [link](https://youtu.be/bCYcBs9kFMc?is=73BfCKcS8YEYuDgm)
+* My Babe [F] [link](https://www.youtube.com/watch?v=aZawFpkUROE)
 * Right On [D] [link](https://www.youtube.com/watch?v=kUVNIJl6h38)
 
 [Back to top](#gigs)
