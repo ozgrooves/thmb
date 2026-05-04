@@ -20,15 +20,15 @@ TBD
 ### Set 1
 
 * Cantaloupe Woman [D] [link](https://www.youtube.com/watch?v=GygQ2OC_GvI)
-* Black Magic Woman [Em] [link](https://www.youtube.com/watch?v=9wT1s96JIb0)
+* Black Magic Woman [Am] [link](https://www.youtube.com/watch?v=9wT1s96JIb0)
 * Mercury Blues [D] [link](https://www.youtube.com/watch?v=QsTfCITzISM)
-* I’ll Play The Blues For You [G] [link](https://www.youtube.com/watch?v=6SP5JHLqXM8)
+* I’ll Play The Blues For You [Gm] [link](https://www.youtube.com/watch?v=6SP5JHLqXM8)
 
 ### Set 2
 
 * Cisst Strut [C] [link](https://www.youtube.com/watch?v=MXI5Nuz6OHg)
 * Kiddio [B] [link](https://www.youtube.com/watch?v=-HyetYwVtHs)
-* A Real Mother For Ya [F] [link](https://www.youtube.com/watch?v=u8MviTtXkF0)
+* A Real Mother For Ya [Fm] [link](https://www.youtube.com/watch?v=u8MviTtXkF0)
 * Wait On Time [A] [link](https://www.youtube.com/watch?v=pWh9L8cUXFQ)
 
 ### Martelle
@@ -49,7 +49,7 @@ TBD
 
 * Killing Floor [G] [link](https://www.youtube.com/watch?v=EGIE28q3fEA)
 * Big Legged Woman [A] [link](https://youtu.be/bCYcBs9kFMc?is=73BfCKcS8YEYuDgm)
-* My Babe [F] [link](https://www.youtube.com/watch?v=aZawFpkUROE)
+* My Babe [G] [link](https://www.youtube.com/watch?v=aZawFpkUROE)
 * Right On [D] [link](https://www.youtube.com/watch?v=kUVNIJl6h38)
 
 [Back to top](#gigs)
