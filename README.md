@@ -2,16 +2,51 @@
 
 # Gigs
 
-* [20. May @Friedrichsdorf](#20-may-friedrichsdorf)
+* [4. Jun @ONO2 with felix](#4-jun-ono2)
+* [20. May @GarniersKeller with Martelle](#20-may-garnierskeller)
 * [7. May @ONO2 with Martelle](#7-may-ono2)
 * [2. Apr @ONO2 with Marcel](#2-apr-ono2)
 * [5. Mar @ONO2 with Mojo](#5-mar-ono2)
 * [5. Feb @ONO2 with James](#5-feb-ono2)
 * [8. Jan @ONO2 with Martelle](#8-jan-ono2)
 
-## 20. May @Friedrichsdorf
+## 4. Jun @ONO2
 
-TBD
+### Set 1
+
+* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
+* T-Bone Shuffle [G] [link](https://www.youtube.com/watch?v=PwMC3W3BE4c)
+* I Can’t Be Satisfied [E] [link](https://www.youtube.com/watch?v=LG95MseHfgA)
+* Caledonia [G] [link](https://www.youtube.com/watch?v=3mf-SW7zTxo)
+* Let’s Start Again [C] [link]()
+* Don’t Bite The Hand That Feeds You [E] [link](https://www.youtube.com/watch?v=sS039t1u2uE)
+* That’s What Love Will Make You Do [C] [link](https://www.youtube.com/watch?v=qunQsoW1Kpc)
+* Cross My Heart [A] [link]()
+* The River Turned To Steam [G] [link](https://www.youtube.com/watch?v=Xofj4HHeO8M)
+
+### Set 2
+
+* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
+* Rock This House [G] [link](https://www.youtube.com/watch?v=CXOf3tftKr0)
+* Ridin’ In The Moonlight [?] [link]()
+* Baby What You Want Me To Do [E] [link](https://www.youtube.com/watch?v=tb3PtE-GAJ4)
+* Wish You Would [G] [link](https://www.youtube.com/watch?v=TGG64_pYSlU)
+* My Sweetest Touch [Bb] [link](https://www.youtube.com/watch?v=X17msVs4-Is)
+* Soon You’ll Be Gone [Bb] [link](https://www.youtube.com/watch?v=JLJFZf5HFCU)
+* Gangster Of Love [G] [link](https://www.youtube.com/watch?v=f-d8k62qKXQ)
+* Hook, Line And Sinker [A] [link](https://www.youtube.com/watch?v=67pqT_SdnD4)
+
+### Extras
+
+* Wondering Why [?] [link](https://www.youtube.com/watch?v=JbxfFKvoAU4)
+* Have You Heard From My Baby [?] [link](https://www.youtube.com/watch?v=0QXQC0RO2bU)
+* I Just Keep Loving Her [?] [link](https://www.youtube.com/watch?v=Jkbo5zR60qc)
+
+[Back to top](#gigs)
+
+## 20. May @GarniersKeller
+
+Same as 7. May ONO2 gig
 
 [Back to top](#gigs)
 
@@ -43,7 +78,6 @@ TBD
 * Got Love If You Want It [G] [link](https://www.youtube.com/watch?v=NEVLKhQHEVU)
 * Willie And Hand Jive [A] [link](https://www.youtube.com/watch?v=OYkgKNfszAY)
 * One Way Out [A] [link](https://www.youtube.com/watch?v=zMsF1sUISWw)
-
 
 ### Extras 
 
