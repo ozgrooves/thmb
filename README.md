@@ -2,6 +2,7 @@
 
 # Gigs
 
+* [3. Aug @ONO2 with Matthias](#3-aug-ono2)
 * [4. Jun @ONO2 with Felix](#4-jun-ono2)
 * [20. May @GarniersKeller with Martelle](#20-may-garnierskeller)
 * [7. May @ONO2 with Martelle](#7-may-ono2)
@@ -9,6 +10,24 @@
 * [5. Mar @ONO2 with Mojo](#5-mar-ono2)
 * [5. Feb @ONO2 with James](#5-feb-ono2)
 * [8. Jan @ONO2 with Martelle](#8-jan-ono2)
+
+## 3. Aug @ONO2
+
+### Set 1
+
+* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
+* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
+* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
+* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
+
+### Set 2
+
+* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
+* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
+* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
+* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
+
+[Back to top](#gigs)
 
 ## 4. Jun @ONO2
 
