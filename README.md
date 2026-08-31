@@ -23,7 +23,7 @@
 
 * Turle walk [C] [link](https://www.youtube.com/watch?v=SU8Bx1XPbjE)
 * Yellow moon [Cm] [link](https://www.youtube.com/watch?v=L1Y6W1FaSVQ)
-* Youre donna need me [A] [link](https://www.youtube.com/watch?v=prOEGo5rAS8)
+* Youre gonna need me [A] [link](https://www.youtube.com/watch?v=prOEGo5rAS8)
 
 ### Matthias
 
@@ -35,7 +35,7 @@
 * Bad boy [A] [link](https://www.youtube.com/watch?v=kHWcVd-edqE)
 * Walking by myself [D] [link](https://www.youtube.com/watch?v=YjMEMK9gx2I)
 * Fever [Am] [link](https://www.youtube.com/watch?v=JBANWpzsHts)
-* Shake rattle and roll [E] [link](https://www.youtube.com/watch?v=Srdl2452J1I)
+* Shake rattle roll [E] [link](https://www.youtube.com/watch?v=Srdl2452J1I)
 * Time is on my side [F] [link](https://www.youtube.com/watch?v=jOxHsuV83KA)
 * Little red rooster [A] [link](https://www.youtube.com/watch?v=Lr0q0zlrZXM)
 * Kidney Stew [A] [link](https://www.youtube.com/watch?v=bjERA-opoAI)
