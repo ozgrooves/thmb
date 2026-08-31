@@ -15,17 +15,33 @@
 
 ### Set 1
 
-* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
-* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
-* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
-* Cold Duck Time [F] [link](https://www.youtube.com/watch?v=U3DJFqgjcOY)
+* Coming home baby [Gm] [link](https://www.youtube.com/watch?v=wrIz2O5MauA)
+* Kiddio [B] [link](https://www.youtube.com/watch?v=-HyetYwVtHs)
+* Snatch it back [Gm] [link](https://www.youtube.com/watch?v=2erGm5LQeoA)
 
 ### Set 2
 
-* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
-* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
-* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
-* Alligator Boogaloo [C] [link](https://www.youtube.com/watch?v=OmVgqCdgy4A)
+* Turle walk [C] [link](https://www.youtube.com/watch?v=SU8Bx1XPbjE)
+* Yellow moon [Cm] [link](https://www.youtube.com/watch?v=L1Y6W1FaSVQ)
+* Youre donna need me [A] [link](https://www.youtube.com/watch?v=prOEGo5rAS8)
+
+### Matthias
+
+* Waling the dog [A] [link](https://www.youtube.com/watch?v=fEoowY9hXuM)
+* You dont love me [G] [link](https://www.youtube.com/watch?v=0wsUNMSiIII)
+* Midnight hour [?] [link](https://www.youtube.com/watch?v=GxWFc_-Phbk)
+* Trouble in mind [A] [link](https://www.youtube.com/watch?v=gbwBVjLrLiI)
+* Hound dog [Bb] [link](https://www.youtube.com/watch?v=-eHJ12Vhpyc)
+* Bad boy [A] [link](https://www.youtube.com/watch?v=kHWcVd-edqE)
+* Walking by myself [D] [link](https://www.youtube.com/watch?v=YjMEMK9gx2I)
+* Fever [Am] [link](https://www.youtube.com/watch?v=JBANWpzsHts)
+* Shake rattle and roll [E] [link](https://www.youtube.com/watch?v=Srdl2452J1I)
+* Time is on my side [F] [link](https://www.youtube.com/watch?v=jOxHsuV83KA)
+* Little red rooster [A] [link](https://www.youtube.com/watch?v=Lr0q0zlrZXM)
+* Kidney Stew [A] [link](https://www.youtube.com/watch?v=bjERA-opoAI)
+* Move it on over [E] [link](https://www.youtube.com/watch?v=ehYcjRpQYjY)
+* CC Rider [G] [link](https://www.youtube.com/watch?v=CxAXspWpQVQ)
+* Aint no sunshine [Am] [link](https://www.youtube.com/watch?v=YuKfiH0Scao)
 
 [Back to top](#gigs)
 
