@@ -29,7 +29,7 @@
 
 * Waling the dog [A] [link](https://www.youtube.com/watch?v=fEoowY9hXuM)
 * You dont love me [G] [link](https://www.youtube.com/watch?v=0wsUNMSiIII)
-* Midnight hour [?] [link](https://www.youtube.com/watch?v=GxWFc_-Phbk)
+* Midnight hour [E] [link](https://www.youtube.com/watch?v=GxWFc_-Phbk)
 * Trouble in mind [A] [link](https://www.youtube.com/watch?v=gbwBVjLrLiI)
 * Hound dog [Bb] [link](https://www.youtube.com/watch?v=-eHJ12Vhpyc)
 * Bad boy [A] [link](https://www.youtube.com/watch?v=kHWcVd-edqE)
@@ -41,7 +41,7 @@
 * Kidney Stew [A] [link](https://www.youtube.com/watch?v=bjERA-opoAI)
 * Move it on over [E] [link](https://www.youtube.com/watch?v=ehYcjRpQYjY)
 * CC Rider [G] [link](https://www.youtube.com/watch?v=CxAXspWpQVQ)
-* Aint no sunshine [Am] [link](https://www.youtube.com/watch?v=YuKfiH0Scao)
+* Aint no sunshine [F#m] [link](https://www.youtube.com/watch?v=YuKfiH0Scao)
 
 [Back to top](#gigs)
 
