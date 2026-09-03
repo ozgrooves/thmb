@@ -29,7 +29,7 @@
 
 * Waling the dog [A] [link](https://www.youtube.com/watch?v=fEoowY9hXuM)
 * You dont love me [G] [link](https://www.youtube.com/watch?v=0wsUNMSiIII)
-* Midnight hour [E] [link](https://www.youtube.com/watch?v=GxWFc_-Phbk)
+* Midnight hour [E] [link](https://www.youtube.com/watch?v=FGVGFfj7POA)
 * Trouble in mind [A] [link](https://www.youtube.com/watch?v=gbwBVjLrLiI)
 * Hound dog [Bb] [link](https://www.youtube.com/watch?v=-eHJ12Vhpyc)
 * Bad boy [A] [link](https://www.youtube.com/watch?v=2Cr7m_VVBaw)
