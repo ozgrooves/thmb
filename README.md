@@ -32,7 +32,7 @@
 * Midnight hour [E] [link](https://www.youtube.com/watch?v=GxWFc_-Phbk)
 * Trouble in mind [A] [link](https://www.youtube.com/watch?v=gbwBVjLrLiI)
 * Hound dog [Bb] [link](https://www.youtube.com/watch?v=-eHJ12Vhpyc)
-* Bad boy [A] [link](https://www.youtube.com/watch?v=kHWcVd-edqE)
+* Bad boy [A] [link](https://www.youtube.com/watch?v=2Cr7m_VVBaw)
 * Walking by myself [D] [link](https://www.youtube.com/watch?v=YjMEMK9gx2I)
 * Fever [Am] [link](https://www.youtube.com/watch?v=JBANWpzsHts)
 * Shake rattle roll [E] [link](https://www.youtube.com/watch?v=Srdl2452J1I)
