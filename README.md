@@ -2,6 +2,7 @@
 
 # Gigs
 
+* [1. Oct @ONO2 with James](#1-okt-ono2)
 * [3. Aug @ONO2 with Matthias](#3-aug-ono2)
 * [4. Jun @ONO2 with Felix](#4-jun-ono2)
 * [20. May @GarniersKeller with Martelle](#20-may-garnierskeller)
@@ -10,6 +11,39 @@
 * [5. Mar @ONO2 with Mojo](#5-mar-ono2)
 * [5. Feb @ONO2 with James](#5-feb-ono2)
 * [8. Jan @ONO2 with Martelle](#8-jan-ono2)
+
+## 1. Oct @ONO2
+
+### Set 1
+
+* Mo’ Better Blues [G]
+* If You Love Me Like You Say [G]
+* Think [A]
+* Use Me [E-]
+* Rock Me Baby [G]
+* Tennessee Whiskey [G]
+* Cold Shot [A]
+* Papa Was A Rollin’ Stone [Am]
+* Your Love Is Lifting Me Higher [B]
+
+### Set 1
+
+* Cantaloupe Woman [D]
+* I’ll Play The Blues For You [G-]
+* Snatch It Back [G-]
+* Stand By Me [G]
+* Lovely Day [E]
+* Born Under A Bad Sign [Dbm]
+* The Ghetto [Am]
+* Can I Change My Mind [B]
+
+### Extras
+
+* Just The Two Of Us [Em?]
+* Stand By Me [G?]
+* Bring It On Home To Me [C?]
+
+[Back to top](#gigs)
 
 ## 3. Aug @ONO2
 
