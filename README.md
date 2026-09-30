@@ -19,7 +19,7 @@
 * Mo’ Better Blues [G]
 * If You Love Me Like You Say [G]
 * Think [A]
-* Use Me [E-]
+* Use Me [Em]
 * Rock Me Baby [G]
 * Tennessee Whiskey [G]
 * Cold Shot [A]
@@ -29,8 +29,8 @@
 ### Set 1
 
 * Cantaloupe Woman [D]
-* I’ll Play The Blues For You [G-]
-* Snatch It Back [G-]
+* I’ll Play The Blues For You [Gm]
+* Snatch It Back [Gm]
 * Stand By Me [G]
 * Lovely Day [E]
 * Born Under A Bad Sign [Dbm]
