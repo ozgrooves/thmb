@@ -2,7 +2,7 @@
 
 # Gigs
 
-* [1. Oct @ONO2 with James](#1-okt-ono2)
+* [1. Oct @ONO2 with James](#1-oct-ono2)
 * [3. Aug @ONO2 with Matthias](#3-aug-ono2)
 * [4. Jun @ONO2 with Felix](#4-jun-ono2)
 * [20. May @GarniersKeller with Martelle](#20-may-garnierskeller)
