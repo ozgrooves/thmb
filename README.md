@@ -26,7 +26,7 @@
 * Papa Was A Rollin’ Stone [Am]
 * Your Love Is Lifting Me Higher [B]
 
-### Set 1
+### Set 2
 
 * Cantaloupe Woman [D]
 * I’ll Play The Blues For You [Gm]
