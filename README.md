@@ -2,6 +2,7 @@
 
 # Gigs
 
+* [3. Dec @ONO2 with James](#3-dec-ono2)
 * [1. Oct @ONO2 with James](#1-oct-ono2)
 * [3. Aug @ONO2 with Matthias](#3-aug-ono2)
 * [4. Jun @ONO2 with Felix](#4-jun-ono2)
@@ -11,6 +12,25 @@
 * [5. Mar @ONO2 with Mojo](#5-mar-ono2)
 * [5. Feb @ONO2 with James](#5-feb-ono2)
 * [8. Jan @ONO2 with Martelle](#8-jan-ono2)
+
+## 3. Dec @ONO2
+
+### Lenni's Vorschläge
+
+* Dont change horses [D] [link](https://www.youtube.com/watch?v=pLSybLugbG8)
+* Too tired [A] [link](https://www.youtube.com/watch?v=zVT08ae57-g)
+* Can i change my mind [B] [link](https://www.youtube.com/watch?v=Vri3tPbV3c8)
+* Crying shame [A] [link](https://www.youtube.com/watch?v=hsVtx1jNjmo)
+* You should probably leave [F#] [link](https://www.youtube.com/watch?v=8e7S8l4s1OM)
+* Whole heart of mine [neuer song von lenni, wird er noch teilen] [link]()
+* Bring it on home to me [F] [link](https://www.youtube.com/watch?v=g3ncYwtsQWY)
+* Junkie [G#] [link](https://www.youtube.com/watch?v=VbhKavdV5mE)
+* The best [G] [link](https://www.youtube.com/watch?v=8Afffdv5Tfg)
+* When something is wrong with my baby [Bb] [link](https://www.youtube.com/watch?v=N3maCEAKZ0s)
+* Dont let the green grass fool you [C] [link](https://www.youtube.com/watch?v=LCl0HPyrdQg)
+* Nothing compares to you [C] [link](https://www.youtube.com/watch?v=pJbBTeGoTIY)
+
+[Back to top](#gigs)
 
 ## 1. Oct @ONO2
 
