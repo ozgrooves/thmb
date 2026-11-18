@@ -2,7 +2,7 @@
 
 # Gigs
 
-* [3. Dec @ONO2 with James](#3-dec-ono2)
+* [3. Dec @ONO2 with Lenni](#3-dec-ono2)
 * [1. Oct @ONO2 with James](#1-oct-ono2)
 * [3. Aug @ONO2 with Matthias](#3-aug-ono2)
 * [4. Jun @ONO2 with Felix](#4-jun-ono2)
